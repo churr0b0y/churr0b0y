@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @churr0b0y
 - 👀 I’m interested in Art
-- 🌱 I’m currently learning how to draw realistically and fantastically
+- 🌱 I’m currently learning how to draw by imagination
 - 📫 How to reach me | mubakegiovanni@gmail.com
