@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @churr0b0y
 - 👀 I’m interested in Art
-- 🌱 I’m currently learning how to draw by imagination
+- 🌱 I’m currently learning how to program in html and css
 - 📫 How to reach me | mubakegiovanni@gmail.com
